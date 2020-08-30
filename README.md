@@ -3,7 +3,7 @@
 ![tafsir ahalm app](https://raw.githubusercontent.com/taysir505/taysir505.github.io/master/tafsir%20ahlam%20app.jpg "tafsir al ahlam")
 
 The completely new tafsir ahlam app is an application of God Almighty that is now five years old, I hope God will benefit us with it, so that we do not forget to mention God.
-Your support for the program and its dissemination to reach millions is our highest goal, and may it intercede for us all on the Day of Resurrection.
+Your support for the program and its dissemination to reach millions is our highest goal, and may it intercede for us all on the Day of Resurrection the Content source is from [tafseer-ahlam.com](https://tafseer-ahlam.com) it helps the app a lot and it's reliable source.
 
 The tafsir ahlam program shows some dhikr, interpretation of dreams and supplications, and alerts that you specialize automatically in the form of notifications, and you can control the number of times they appear daily.
 
